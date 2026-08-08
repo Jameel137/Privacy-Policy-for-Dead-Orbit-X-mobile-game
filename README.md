@@ -73,4 +73,4 @@ Changes will be posted on this page.
 
 If you have any questions about this Privacy Policy, you may contact us at:
 
-📧 jumeal5@gmail.com
+📧 jameelgg91@gmail.com
